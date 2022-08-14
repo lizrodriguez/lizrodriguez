@@ -1,4 +1,4 @@
-👋 Hi I'm Liz
+👋 Hi I'm Liz, a tech directory from New York City
 
 👩🏽‍🦳 My pronouns are she/they
 
